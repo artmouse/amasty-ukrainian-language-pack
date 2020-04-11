@@ -1,0 +1,1 @@
+# amasty-ukrainian-language-pack
